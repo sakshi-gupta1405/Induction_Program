@@ -8,5 +8,18 @@ This was followed by engaging addresses from two brilliant alumni Mr. Sangam Aro
 
 Then Mrs. Harpreet Kaur Garewal, Head of the Department of Applied Sciences, who gave a profoundly thoughtful and welcoming speech, urging students to grab every chance with zeal and dedication. 
 
-Dr. Akshay Giddar, Dean Academics, added value by interacting with students and advising them on academic strategies and college culture.
+Dr. Akshay Giddar, Dean Academics, added value by interacting with students and advising us on academic strategies and college culture.
+
+The highlight was Dr. Sehajpal Singh, Principal of GNDEC, whose forward-thinking words boosted the day's impact.
+
+The institution honored two distinguished Guests of Honour: Shri Ravindra Garg, Chief Engineer, Municipal Corporation, Ludhiana, whose presence and impactful words added immense dignity and relevance. Engineer Rakesh Kumar, a notable alumnus of the 1991 batch and currently ADC, Ludhiana, shared his inspiring journey from GNDEC classrooms to administrative leadership.
+
+Students also interacted with Shri Ashok Singla, Financial Advisor, whose practical insights and encouraging words gave students a fresh perspective on viewing their future.
+
+Then we headed towards our departments where our mentors, HOD's addressed and motivated us for this new journey. 
+
+I learned an essential lesson today- That college life is not only about studying, it's about developing new skills, exploring our inner talents, discovering new passions and creating unforgettable memories. 
+
+So the day ended with motivation, institutional pride giving the CSE and IT students a powerful start to their academics and professional lives. 
+
 
