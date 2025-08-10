@@ -49,4 +49,7 @@ Then again we had an interesting lecture by Dr. Priya Darshini on Universal Huma
 
 Then the members of Causmic Club addressed the students giving them description about their club and various events organised by them. They also talked about the opportunities the club offers to their members. 
 
+# Day 5
+So our day 5 was packed up with various lectures like English, Maths, BEEE where we had introduction with the professors and information regarding the paper pattern of these subjects. 
+
 
