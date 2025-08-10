@@ -22,4 +22,10 @@ I learned an essential lesson today- That college life is not only about studyin
 
 So the day ended with motivation, institutional pride giving the CSE and IT students a powerful start to their academic and professional lives. 
 
+# Day 2
+Our day 2 at GNDEC began with a 2 hour proficiency test of Maths and English to assess our aptitude skills. 
+
+Then we all gathered in the auditorium where we had a lecture about Satya Scholarship. The representatives made us aware about their scholarship programs encouraging many students to continue their studies without any financial burden. The lecture also emphasised the right usage of money and how can we become financially independent. 
+
+
 
