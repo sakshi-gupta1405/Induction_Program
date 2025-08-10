@@ -58,5 +58,14 @@ Day 6 kicked off with P2P lecture and lecture by prof. Jaswant Singh.
 Then we had a session in auditorium by Dr. Lakhvir Singh Khanna, CML Incharge, where he introduced the centre to students and talked about its opportunities and how can students take advantage of that centre to excell in their engineering journey. 
 
 # Day 7
+Day started with engaging address by Dr. Parminder Singh, Dean student welfare. He gave a powerful speech to boost up our day. He talked about sports system and portals of our college. He speech included major topics like time management, friends, hard work, aims. 
 
+This was followed by an engaging session by Dr. Amit Kamra, Incharge-DMC, whose team handles the social media of our college. He gave a brief description of his digital marketing club and its potential and future emergance. 
+
+Then Dr. Randhir Singh addressed us and made us aware about the examination rules. 
+
+Then we had our BEEE lecture which was fun learning! 
+
+From all these sessions I learned that "college life is about identifying our limitations and work on it."
+"Hard work along with prayer is the stair to success."
 
