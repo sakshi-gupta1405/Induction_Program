@@ -45,4 +45,6 @@ The program wrapped up by highlighting the importance of integrating technical e
 # Day 4
 Our day 4 at GNDEC kicked off with Chemistry and P2P lectures. Prof. Rajvir Kaur interacted with students and introduced Chemistry subject to us in a fun learning way. She also motivated and encouraged us to participate in extra curricular activities and develop our skills besides studying. Then we had c++ programming session by our seniors in which we learned basics of c++ which was very interesting. 
 
+Then again we had an interesting lecture by Dr. Priya Darshini on Universal Human values emphasizing on Right understanding and Natural acceptance
+
 
