@@ -29,6 +29,8 @@ Then we all gathered in the auditorium where we had a lecture about Satya Schola
 
 Then Dr. Arashdeep Singh added value by interacting with students and providing them with food related facts. 
 
+Our day concluded with a session on GitHub led by our seniors. GitHub- A vital tool for version control and collaboration. With their guidance, we created our first repository as budding engineers. The practical session was very exciting and helpful for us. 
+
 
 
 
