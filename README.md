@@ -31,6 +31,17 @@ Then Dr. Arashdeep Singh added value by interacting with students and providing 
 
 Our day concluded with a session on GitHub led by our seniors. GitHub- A vital tool for version control and collaboration. With their guidance, we created our first repository as budding engineers. The practical session was very exciting and helpful for us. 
 
+# Day 3
+GNDEC successfully hosted Day 3 of its Student Induction Program for first-year IT and CSE students on August 2, 2025. The day's events, held in the college auditorium, featured a series of engaging sessions designed to foster academic excellence and ethical awareness among the new students.
+
+The chief guest, Sardar Gurcharan Singh Grewal, a respected member of the Shiromani Gurdwara Parbandhak Committee (SGPC) and Nankana Sahib Education Trust, delivered an inspiring speech. He emphasized the importance of balancing academic aspirations with strong values.
+
+The day's proceedings began with an interactive session by Dr. Jaswinder Singh, a renowned educator, who showcased innovative teaching methods and live experiments.
+
+This was followed by a session on Universal Human Values by Dr. Priya Darshini, who highlighted the significance of ethics, empathy, and integrity in engineering and professional practice.
+
+The program wrapped up by highlighting the importance of integrating technical expertise with strong human values for achieving true success and growth.
+
 
 
 
