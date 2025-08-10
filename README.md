@@ -43,5 +43,6 @@ This was followed by a session on Universal Human Values by Dr. Priya Darshini, 
 The program wrapped up by highlighting the importance of integrating technical expertise with strong human values for achieving true success and growth.
 
 # Day 4
+Our day 4 at GNDEC kicked off with Chemistry and P2P lectures. Prof. Rajvir Kaur interacted with students and introduced Chemistry subject to us in a fun learning way. She also motivated and encouraged us to participate in extra curricular activities and develop our skills besides studying. Then we had c++ programming session by our seniors in which we learned basics of c++ which was very interesting. 
 
 
