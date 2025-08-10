@@ -27,5 +27,8 @@ Our day 2 at GNDEC began with a 2 hour proficiency test of Maths and English to 
 
 Then we all gathered in the auditorium where we had a lecture about Satya Scholarship. The representatives made us aware about their scholarship programs encouraging many students to continue their studies without any financial burden. The lecture also emphasised the right usage of money and how can we become financially independent. 
 
+Then Dr. Arashdeep Singh added value by interacting with students and providing them with food related facts. 
+
+
 
 
