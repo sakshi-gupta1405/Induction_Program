@@ -20,6 +20,6 @@ Then we headed towards our departments where our mentors, HOD's addressed and mo
 
 I learned an essential lesson today- That college life is not only about studying, it's about developing new skills, exploring our inner talents, discovering new passions and creating unforgettable memories. 
 
-So the day ended with motivation, institutional pride giving the CSE and IT students a powerful start to their academics and professional lives. 
+So the day ended with motivation, institutional pride giving the CSE and IT students a powerful start to their academic and professional lives. 
 
 
