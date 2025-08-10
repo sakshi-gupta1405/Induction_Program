@@ -42,6 +42,6 @@ This was followed by a session on Universal Human Values by Dr. Priya Darshini, 
 
 The program wrapped up by highlighting the importance of integrating technical expertise with strong human values for achieving true success and growth.
 
-
+# Day 4
 
 
