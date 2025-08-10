@@ -52,4 +52,11 @@ Then the members of Causmic Club addressed the students giving them description 
 # Day 5
 So our day 5 was packed up with various lectures like English, Maths, BEEE where we had introduction with the professors and information regarding the paper pattern of these subjects. 
 
+# Day 6
+Day 6 kicked off with P2P lecture and lecture by prof. Jaswant Singh. 
+
+Then we had a session in auditorium by Dr. Lakhvir Singh Khanna, CML Incharge, where he introduced the centre to students and talked about its opportunities and how can students take advantage of that centre to excell in their engineering journey. 
+
+# Day 7
+
 
